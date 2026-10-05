@@ -1,9 +1,13 @@
-# why am i here
-because im a dumb so i can't go to other school
-## GOD DAMNNNN
-~~DOES THIS WORK IN HERE~~
-- COOL
-- IT CAN
-### DISCORD也是用多了
-![UGLY ONE](ART/我藥丸.PNG)
-![PRETTY ONE](ART/images.jpg) 
+# 姓名
+- 葉語如
+
+# 學號
+- 1151830
+# 照片
+![me](ART/30.png)
+哈哈都是我畫的:D
+# 組別
+- 我忘了
+# 興趣
+- 被妮姬跟新邦綁架中，喜歡畫圖。
+![我興趣](ART/30_2-1.png)
