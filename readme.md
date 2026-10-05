@@ -5,4 +5,5 @@ because im a dumb so i can't go to other school
 - COOL
 - IT CAN
 ### DISCORD也是用多了
-||這個可以嗎||
+![UGLY ONE](ART/我藥丸.PNG)
+![PRETTY ONE](ART/images.jpg) 
